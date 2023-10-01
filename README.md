@@ -1,1 +1,0 @@
-# Minecraft-JSTR-Smooth-Overrides
